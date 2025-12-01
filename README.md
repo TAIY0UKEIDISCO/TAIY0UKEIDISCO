@@ -1,4 +1,4 @@
-
+![TAIY0UKEIDISCO](https://media1.tenor.com/m/W7w43aGCFqMAAAAC/pjsk-project-sekai.gif)
 
 <!--
 **TAIY0UKEIDISCO/TAIY0UKEIDISCO** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
