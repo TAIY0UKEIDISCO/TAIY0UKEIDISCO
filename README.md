@@ -1,4 +1,4 @@
-## Hi there 👋
+
 
 <!--
 **TAIY0UKEIDISCO/TAIY0UKEIDISCO** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
