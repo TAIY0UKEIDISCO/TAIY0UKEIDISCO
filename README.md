@@ -1,7 +1,7 @@
 
 <img width="400" height="185" alt="1000041684" src="https://github.com/user-attachments/assets/5bd0b200-d1be-468d-a733-48cf521e15f6" />
 
-    "Rev 𝘪𝘵 𝘱𝘦𝘰𝘱𝘭𝘦!"
+    "T-T-Touch that pitch, light em' up don't miss."
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
