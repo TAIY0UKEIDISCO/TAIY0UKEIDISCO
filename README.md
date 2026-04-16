@@ -3,7 +3,7 @@
 
     "T-T-Touch that pitch, light em' up don't miss."
 
-Hihiiii check out my socials bfy friend me, ty (sign ata if you dont mind :33)
+[strpg](https://taiy0ukeidisco.straw.page)    [prns](https://taiy0ukeidisco.straw.page)    [ata](https://taiy0ukeidisco.straw.page)
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=2qfz3x9b13w61ne86468cldtk&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=e3312b&bar_color_cover=false">
