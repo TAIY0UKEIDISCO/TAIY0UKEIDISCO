@@ -5,7 +5,7 @@
 <p align="center">
   <a 
     
-![](https://komarev.com/ghpvc/?username=TAIY0UKEIDISCO&color=FDA05E)
+![](https://komarev.com/ghpvc/?username=TAIY0UKEIDISCO&style=plastic&label=cheesecakes&color=FDA05E)
 
 <p align="center">
   <a 
