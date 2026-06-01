@@ -1,7 +1,7 @@
 
-<img width="400" height="185" alt="1000041684" src="https://github.com/user-attachments/assets/5bd0b200-d1be-468d-a733-48cf521e15f6" />
+[![akitoyaa.png](https://i.postimg.cc/C16LhSTc/akitoyaa.png)](https://postimg.cc/ygcznqNR)
 
-    "T-T-Touch that pitch, line em' up don't miss."
+
 <p align="center">
   <a 
     
